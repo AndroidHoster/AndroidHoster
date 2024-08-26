@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @apkrank
 - 👀 I’m interested in Blogging
-- 🌱 I’m currently learning Blogging
+- 🌱 I’m currently learning Blogging at https://apkrank.net/
 - 💞️ I’m looking to collaborate on Online Earning
 - 📫 How to reach me contact at amdgzr@gmail.com
 
